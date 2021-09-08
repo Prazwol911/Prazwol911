@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning rendering........
 - 💞️ I’m looking to collaborate on valorant...
 - 📫 How to reach me......through my insta 
+- lollllllllllllllllllllllllllllllll
 
 <!---
 Prazwol911/Prazwol911 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
